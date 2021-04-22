@@ -2,4 +2,4 @@
 - 👀 I love playing Minecraft.
 - 🌱 I’m currently learning Java.
 - 📫 If you wanna chat DM me on twitter (@m4rtless) or discord (Mart#6852)
-- I hope you have a nice day!
+- ⚧️ I'm a transgender woman! (Pronouns: She/Her)
